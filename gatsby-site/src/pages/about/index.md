@@ -4,6 +4,8 @@ path: /about
 title: About
 ---
 
+![](/img/about/me.png#right)
+
 ## Mikael Austin 
 
 is a NYC based technical salesperson at a startup and alumna of Cornell University. She regularly deals with negotiation. She has participated as a guest speaker on numerous occasions at different colleges. 
