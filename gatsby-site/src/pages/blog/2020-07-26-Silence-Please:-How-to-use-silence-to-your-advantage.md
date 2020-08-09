@@ -33,7 +33,7 @@ As with everything, timing matters. When is it an ideal time to be silent? This 
 
 Within the realm of negotiation tools, I find silence unique because it’s one of the few techniques that will come easiest for introverts. The world is made for extroverts. The act of negotiating requires a boldness that is more natural for extroverts. But in a negotiation, the person who speaks the least usually has the most power. Extroverts are more likely to rush to fill the void. Because of this, introverts, who don’t shy away from silence, are more likely to have more power in a negotiation.
 
-![](/img/blogposts/Silence-Please--How-to-use-silence-to-your-advantage/Silence-Please--How-to-use-silence-to-your-advantage3.jpg#center)
+![](/img/blogposts/Silence-Please--How-to-use-silence-to-your-advantage/Silence-Please--How-to-use-silence-to-your-advantage3.png#center)
 <div style="text-align: center"><a href="https://lh3.googleusercontent.com/proxy/qP4V3rwDM2zhFUdI3O-F0HQ4sAsvcj2LuSUQOa1dS2-ZQIpd2Mj3Ru09LxHWqeMIX1yKoh6t9hTH3ZW4gT5OC1EJkqNLm8HyB1TcRv16MI527rF0VAU_ZQ2zm15gbUY">image credit</a></div><br />
 
 Back to the example of asking for free pizza, if you are uncomfortable with silence, you probably won’t be able to ask. Imagine asking for free pizza and waiting in silence. If you are uncomfortable with the silence that fills the room, you are less likely to stand by your request. You are more likely to say “just kidding,” or “nevermind!” If you can confidently wait out the silence, you will be a better negotiator. 
